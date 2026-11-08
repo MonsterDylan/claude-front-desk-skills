@@ -1,0 +1,17 @@
+# Questions asked at the front desk this week (DEMO, fictional)
+
+- Is NAD+ worth it? (phone)
+- do i need to fast before my labs (text)
+- Jane S. asked if she can take her thyroid med before the blood draw
+- Is NAD+ actually worth the money or is it hype (DM)
+- How long until I feel a difference on the membership? (in person)
+- Does insurance cover any of this? (phone)
+- Do I need to fast before labs? (email)
+- What does ApoB mean, my old doctor never tested it (in person)
+- Can my husband join the membership later? (email)
+- Is NAD+ worth it (in person)
+- Do insurance plans cover the labs? (phone)
+- Fasting before labs, how many hours? (text)
+- What is ApoB (portal message from Mike D., 555-0144)
+- How long until I notice anything? (phone)
+- Is NAD+ worth it for energy? (DM)
